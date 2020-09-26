@@ -1,2 +1,0 @@
-# Luffy-abo-jod
-lool
